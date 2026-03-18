@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
- alex⠀⠀ou⠀⠀dirk⠀⠀＼/⁠(⁠^⁠o⁠^/)⁠／
+ alex⠀⠀ou⠀⠀dirk⠀⠀ꫂ᭪
 </p>
 
 <p align="center">
