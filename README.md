@@ -11,5 +11,5 @@
 </p>
 
 <p align="center">
-[rentry](https://rentry.co/summerbummer)⠀⠀[atabook](https://carseatheadrest.atabook.org)
+(rentry)[https://rentry.co/summerbummer]⠀⠀(atabook)[https://carseatheadrest.atabook.org]
 </p>
