@@ -3,13 +3,13 @@
 </p>
 
 <p align="center">
-// alex⠀⠀ou⠀⠀dirk⠀⠀＼⁠(⁠^⁠o⁠^⁠)⁠／⠀⠀he⠀⠀him
+ alex⠀⠀ou⠀⠀dirk⠀⠀＼⁠(⁠^⁠o⁠^⁠)⁠／
 </p>
 
 <p align="center">
-// c+h⠀⠀always⠀⠀welcome⠀⠀!
+ c+h⠀⠀always⠀⠀welcome⠀⠀!
 </p>
 
 <p align="center">
-// [rentry](https://rentry.co/summerbummer)⠀⠀[atabook](https://carseatheadrest.atabook.org)
+ [rentry](https://rentry.co/summerbummer)⠀⠀[atabook](https://carseatheadrest.atabook.org)
 </p>
