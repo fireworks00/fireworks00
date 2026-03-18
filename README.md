@@ -10,6 +10,8 @@
  c+h⠀⠀always⠀⠀welcome⠀⠀!
 </p>
 
-
-[rentry](https://rentry.co/summerbummer)⠀⠀[atabook](https://carseatheadrest.atabook.org)
+<p align="center">
+<a href="https://rentry.co/summerbummer">rentry</a>
+<a href="https://carseatheadrest.atabook.org">atabook</a>
+</p>
 
