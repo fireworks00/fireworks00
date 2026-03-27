@@ -11,6 +11,10 @@ rk800's #1 fan oh oh oh
 </p>
 
 <p align="center">
+c+h ALWAYS welcome!
+</p>
+
+<p align="center">
 <a href="https://rentry.co/summerbummer">rentry</a>⠀⠀
 <a href="https://carseatheadrest.atabook.org">atabook</a>
 </p>
