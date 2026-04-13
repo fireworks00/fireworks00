@@ -19,3 +19,6 @@ c+h ALWAYS welcome!
 <a href="https://carseatheadrest.atabook.org">atabook</a>
 </p>
 
+<p align="center">
+10:32 PM[GamerRussiaRules] \*wears knight helmet*
+</p>
