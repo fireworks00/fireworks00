@@ -20,5 +20,5 @@ c+h ALWAYS welcome!
 </p>
 
 <p align="center">
-10:32 PM[GamerRussiaRules] \*wears knight helmet*
+10:32 PM[GamerRussiaRules] *wears knight helmet*
 </p>
