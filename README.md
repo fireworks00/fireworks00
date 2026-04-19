@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-seventeen ˙𐃷˙  he/him
+alex/dirk ˙𐃷˙  he/him
 </p>
 
 <p align="center">
