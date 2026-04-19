@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-alex/dirk ˙𐃷˙  he/him
+7teen ˙𐃷˙  he/him
 </p>
 
 <p align="center">
