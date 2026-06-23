@@ -1,8 +1,4 @@
 <p align="center">
-  <img src="https://media1.tenor.com/m/YqzjFvj1fv4AAAAd/eddsworld-edd-eddsworld.gif"/>
-</p>
-
-<p align="center">
 7teen ˙𐃷˙  he/him
 </p>
 
